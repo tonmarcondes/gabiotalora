@@ -1,4 +1,4 @@
-☺ Oie, sou a Gabi, prazer :)
+☺ Oie, sou a Gabi, prazer :) 😊
 
 💻 Iniciando programação
 <div>
